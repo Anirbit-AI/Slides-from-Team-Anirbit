@@ -1,2 +1,2 @@
-# Slides-from-Anirbit-Group
+# Slides-from-Team-Anirbit
 Slide Presentations of Our Works
